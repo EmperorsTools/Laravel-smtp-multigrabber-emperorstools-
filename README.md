@@ -11,3 +11,5 @@ For any questions you can PM me at: @Multireseller. Only serious people, people 
 DISCLAIMER: IM NOT THE OFFICIAL EMPERORSTOOLSSHOP IM JUST A RESELLER.
 
 
+![image](https://github.com/user-attachments/assets/556260c6-8cd5-4653-9c13-66062663710e)
+
